@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @NerdHarshit
 - 👀 I’m interested in -  coding , robotics , cad , rockets and basically anything STEM
 - 🌱 I’m currently learning -  computer engineering
-- 💞️ I’m looking to collaborate on -  Na i usually like to work alone 
+- 💞️ I’m looking to collaborate on -  whatever project that intrests me 
 - 📫 How to reach me - insta or mail 
-- 😄 Pronouns: - just a normal regular dude/male dont need to specify pronouns and shit i dont believe in those
+- 😄 Pronouns: - Male
 - ⚡ Fun fact: - too many to put here
 - 🕉️ I am Indian 
 
